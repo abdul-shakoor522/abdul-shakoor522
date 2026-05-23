@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on WordPress.<br>🌱 I’m currently learning Plugin development.<br>🤝 I can make any type of website on wordpress like a business, real estate, and services website. <br>📫 How to reach me: shakoorwebdev@gmail.com<br>WhatsApp: https://wa.me/923120733806<br>⚡ Fun fact: I love cats
+🔭 I’m currently working on WordPress.<br>🌱 I’m currently learning Plugin development.<br>🤝 I can make any type of website on WordPress, like a business, real estate, and services website. <br>📫 How to reach me: shkoorabdul383@gmail.com<br>WhatsApp: https://wa.me/923120733806<br>⚡ Fun fact: I love cats
 
 
 ## 🌐 Socials:
